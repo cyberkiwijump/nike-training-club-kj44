@@ -1,4 +1,4 @@
-# 
+# Enhance Nike Training Club for macOS with exclusive Nike Training Club for macOS Module | water-intake-tracking + custom-workouts, the #1 module. Includes water-intake-tracking
 
 
 
